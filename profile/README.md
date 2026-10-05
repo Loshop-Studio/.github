@@ -11,12 +11,17 @@
 ### 联系我们
 
 QQ群：1067807011
+
 邮箱：loshop_studio@163.com
 
 > Loshop联系方式：
+
 loshop@163.com
+
 QQ 3638035833
+
 微信 bennyloshop
+
 <!--
 
 **Here are some ideas to get you started:**
